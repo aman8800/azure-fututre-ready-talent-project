@@ -1,0 +1,1 @@
+# azure-fututre-ready-talent-project
